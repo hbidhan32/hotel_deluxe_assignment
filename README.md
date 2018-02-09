@@ -1,29 +1,3 @@
 hotel_deluxe_assignment
-
-Sun
-
-NASA's Newly Rediscovered IMAGE Mission Provided by Aurora
-
-Sun
-
-NASA's Newly Rediscovered IMAGE Mission Provided by Aurora
-
-Sun
-
-NASA's Newly Rediscovered IMAGE Mission Provided by Aurora
-
-Sun
-
-NASA's Newly Rediscovered IMAGE Mission Provided by Aurora
-
-Sun
-
-NASA's Newly Rediscovered IMAGE Mission Provided by Aurora
-
-Sun
-
-NASA's Newly Rediscovered IMAGE Mission Provided by Aurora
-
-Sun
-
-NASA's Newly Rediscovered IMAGE Mission Provided by Aurora
+Proin iaculis purus consequat sem cure digni ssim. Donec porttitora entum suscipit aenean rhoncus posuere odio in tincidunt. Proin iaculis purus consequat sem cure digni ssim. Donec porttitora entum suscipit aenean rhoncus posuere odio in tincidunt.Proin iaculis purus consequat sem cure digni ssim. Donec porttitora entum suscipit aenean rhoncus posuere odio in tincidunt. Proin iaculis purus 
+Proin iaculis purus consequat sem cure digni ssim. Donec porttitora entum suscipit aenean rhoncus posuere odio in tincidunt. Proin iaculis purus consequat sem cure digni ssim. Donec porttitora entum suscipit aenean rhoncus posuere odio in tincidunt.
